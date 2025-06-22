@@ -1,14 +1,13 @@
 # 👨‍⚕️ Khaja Nijamuddin Yerraguntla  
-<p>**🔬 Clinical Sales** 
+<p><b>🔬 Clinical Sales** 
 **🤖 Robotic Surgery**<br>
 **📈 Business Development**
 **🎤 Trainer**
-**🏥 Healthcare Leader**  </p>
+**🏥 Healthcare Leader</b> </p>
 
 📍 Bengaluru, India 📧 nizam.jnj@gmail.com 📞 +91 98852 18394  
 🔗 [LinkedIn](https://www.linkedin.com/in/khaja-nizamuddin-a8932649/)
 
----
 
 ## 🧠 About Me  
 I’m a seasoned professional with over **12 years** of experience in the healthcare industry specializing in  
