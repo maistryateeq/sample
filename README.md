@@ -1,11 +1,8 @@
 # 👨‍⚕️ Khaja Nijamuddin Yerraguntla  
-<p><b>🔬 Clinical Sales** 
-**🤖 Robotic Surgery**<br>
-**📈 Business Development**
-**🎤 Trainer**
-**🏥 Healthcare Leader</b> </p>
+<p><b>🔬 Clinical Sales<br>🤖 Robotic Surgery<br>📈 Business Development<br>🎤 Trainer<br>🏥 Healthcare Leader</b> </p>
 
-📍 Bengaluru, India 📧 nizam.jnj@gmail.com 📞 +91 98852 18394  
+📍 Bengaluru, India <br>📧 nizam.jnj@gmail.com <br>📞 +91 98852 18394 <br>
+
 🔗 [LinkedIn](https://www.linkedin.com/in/khaja-nizamuddin-a8932649/)
 
 
@@ -16,7 +13,6 @@ I’m a seasoned professional with over **12 years** of experience in the health
 I’ve led Da Vinci Surgical programs across India and trained multi-specialty teams in Urology, General Surgery,  
 Gynecology, Thoracic, and Head & Neck. I bring a blend of strategy, execution, and people leadership.
 
----
 
 ## 💼 Professional Experience
 
@@ -35,7 +31,6 @@ Gynecology, Thoracic, and Head & Neck. I bring a blend of strategy, execution, a
 - 🏆 Ranked top in **ULTRACET**, **STUGERON**, and vaccine sales
 - 🗂️ Mentored new MSRs and created territory success models
 
----
 
 ## 🏅 Achievements  
 - 🥇 **1st in India** to support robotic surgeries without proctor  
@@ -44,20 +39,17 @@ Gynecology, Thoracic, and Head & Neck. I bring a blend of strategy, execution, a
 - 🎤 Delivered **30+ motivational sessions** for students & professionals  
 - 🛠 Supported **billing, content, marketing** & **insurance approvals** for robotic programs
 
----
 
 ## 🎓 Education  
 🎓 **EMBA – Health Care Management**, ISBM, Hyderabad – *83.11%*  
 🎓 **B.Pharm**, Sultan Ul Uloom College, Hyderabad – *69.25%*  
 🎓 **D.Pharm**, Raghavendra Institute, Anantapur – *84.71%*
 
----
 
 ## 🧾 Certifications  
 ✅ **Lean Methodology** – Leadership, Culture & Management (2020)  
 ✅ **Six Sigma Green Belt** (2020)  
 
----
 
 ## 🧰 Skills & Tools  
 🔹 Robotic Surgery (Da Vinci S/Si/X/Xi)  
@@ -66,24 +58,21 @@ Gynecology, Thoracic, and Head & Neck. I bring a blend of strategy, execution, a
 🔹 Project & Program Management  
 🔹 Public Speaking, Mentoring, CME Leadership  
 
----
 
 ## 🌍 Languages  
-🗣️ English | Hindi | Telugu | Urdu | Kannada | Arabic | 🇩🇪 German (Beginner)
+🗣️ English <br> Hindi <br> Telugu <br> Urdu <br> Kannada <br> Arabic <br> 🇩🇪 German (Beginner)
 
----
 
 ## 🎙️ Interests  
 - 🗣️ Motivational Speaking – *“I AM SMART”, Career Talks, Workplace Stress Mgmt*  
 - 🧑‍🏫 Guest Faculty – *Yashoda Hospitals, Es Pharma*  
 - ❤️ Volunteering – *Career Guidance Council, Red Boys Foundation*
 
----
 
 ## 📬 Let’s Connect  
 📧 **Email:** [nizam.jnj@gmail.com](mailto:nizam.jnj@gmail.com)  
 🔗 **LinkedIn:** [linkedin.com/in/khaja-nizamuddin-a8932649](https://www.linkedin.com/in/khaja-nizamuddin-a8932649/)  
 🏡 **Location:** Bengaluru, India
 
----
+
 
