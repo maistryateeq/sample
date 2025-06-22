@@ -59,7 +59,13 @@ Gynecology, Thoracic, and Head & Neck. I bring a blend of strategy, execution, a
 
 
 ## 🗣️ Languages  
-- English <br> - Hindi <br> - Telugu <br> - Urdu <br> - Kannada <br> - Arabic <br> - 🇩🇪 German (Beginner)
+- English <br>
+- Hindi <br>
+- Telugu <br>
+- Urdu <br>
+- Kannada <br>
+- Arabic <br>
+- 🇩🇪 German (Beginner)
 
 
 ## 🎙️ Interests  
