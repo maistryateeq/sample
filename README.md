@@ -1,6 +1,6 @@
 # 👨‍⚕️ Khaja Nijamuddin Yerraguntla  
 <p>**🔬 Clinical Sales** 
-**🤖 Robotic Surgery**<br><br>
+**🤖 Robotic Surgery**<br>
 **📈 Business Development**
 **🎤 Trainer**
 **🏥 Healthcare Leader**  </p>
