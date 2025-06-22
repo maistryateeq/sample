@@ -15,19 +15,19 @@ Gynecology, Thoracic, and Head & Neck. I bring a blend of strategy, execution, a
 
 ## 💼 Professional Experience
 
-### 🔹 Clinical Sales Executive – *Intuitive Surgical India Pvt. Ltd.* (2018–Present)  
-🤝 Led robotic installations at **Columbia Asia, Apollo, AJ, Yenepoya, HCG**
-🎓 Trained surgeons across all specialties on **Da Vinci S/Si/X/Xi systems**
+### 🔹 Clinical Sales Executive – *Intuitive Surgical India Pvt. Ltd.* (2018–Present)  <br>
+🤝 Led robotic installations at **Columbia Asia, Apollo, AJ, Yenepoya, HCG**<br>
+🎓 Trained surgeons across all specialties on **Da Vinci S/Si/X/Xi systems**<br>
 🧠 Conducted **virtual case observations** during COVID – first in India
 
-### 🔹 Territory Sales Manager – *Smith & Nephew* (2015–2018)  
-🏥 Conducted **18+ wound care workshops**, **12+ CMEs**
-👩‍⚕️ Trained **6000+ nurses**, **100+ surgeons** across AP & Telangana
+### 🔹 Territory Sales Manager – *Smith & Nephew* (2015–2018)  <br>
+🏥 Conducted **18+ wound care workshops**, **12+ CMEs**<br>
+👩‍⚕️ Trained **6000+ nurses**, **100+ surgeons** across AP & Telangana<br>
 📑 Introduced products in **Govt tenders & defense hospitals**
 
-### 🔹 Medical Sales & Vaccines – *Mothmir | Novartis | J&J* (2009–2015)  
-💉 Launched vaccines, conducted CMEs & new brand presentations
-🏆 Ranked top in **ULTRACET**, **STUGERON**, and vaccine sales
+### 🔹 Medical Sales & Vaccines – *Mothmir | Novartis | J&J* (2009–2015)  <br>
+💉 Launched vaccines, conducted CMEs & new brand presentations<br>
+🏆 Ranked top in **ULTRACET**, **STUGERON**, and vaccine sales<br>
 🗂️ Mentored new MSRs and created territory success models
 
 
