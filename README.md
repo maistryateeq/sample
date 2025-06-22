@@ -17,26 +17,26 @@ Gynecology, Thoracic, and Head & Neck. I bring a blend of strategy, execution, a
 
 ### 🔹 Clinical Sales Executive – *Intuitive Surgical India Pvt. Ltd.* (2018–Present)  
 🤝 Led robotic installations at **Columbia Asia, Apollo, AJ, Yenepoya, HCG**
-- 🎓 Trained surgeons across all specialties on **Da Vinci S/Si/X/Xi systems**
-- 🧠 Conducted **virtual case observations** during COVID – first in India
+🎓 Trained surgeons across all specialties on **Da Vinci S/Si/X/Xi systems**
+🧠 Conducted **virtual case observations** during COVID – first in India
 
 ### 🔹 Territory Sales Manager – *Smith & Nephew* (2015–2018)  
-- 🏥 Conducted **18+ wound care workshops**, **12+ CMEs**
-- 👩‍⚕️ Trained **6000+ nurses**, **100+ surgeons** across AP & Telangana
-- 📑 Introduced products in **Govt tenders & defense hospitals**
+🏥 Conducted **18+ wound care workshops**, **12+ CMEs**
+👩‍⚕️ Trained **6000+ nurses**, **100+ surgeons** across AP & Telangana
+📑 Introduced products in **Govt tenders & defense hospitals**
 
 ### 🔹 Medical Sales & Vaccines – *Mothmir | Novartis | J&J* (2009–2015)  
-- 💉 Launched vaccines, conducted CMEs & new brand presentations
-- 🏆 Ranked top in **ULTRACET**, **STUGERON**, and vaccine sales
-- 🗂️ Mentored new MSRs and created territory success models
+💉 Launched vaccines, conducted CMEs & new brand presentations
+🏆 Ranked top in **ULTRACET**, **STUGERON**, and vaccine sales
+🗂️ Mentored new MSRs and created territory success models
 
 
 ## 🏅 Achievements  
-- 🥇 **1st in India** to support robotic surgeries without proctor  
-- 🎯 Built **3 new robotic programs** in a single year  
-- 🎓 Established **robotic training center** at Yenepoya University  
-- 🎤 Delivered **30+ motivational sessions** for students & professionals  
-- 🛠 Supported **billing, content, marketing** & **insurance approvals** for robotic programs
+🥇 **1st in India** to support robotic surgeries without proctor  
+🎯 Built **3 new robotic programs** in a single year  
+🎓 Established **robotic training center** at Yenepoya University  
+🎤 Delivered **30+ motivational sessions** for students & professionals  
+🛠 Supported **billing, content, marketing** & **insurance approvals** for robotic programs
 
 
 ## 🎓 Education  
@@ -59,13 +59,13 @@ Gynecology, Thoracic, and Head & Neck. I bring a blend of strategy, execution, a
 
 
 ## 🗣️ Languages  
-- English <br> Hindi <br> Telugu <br> Urdu <br> Kannada <br> Arabic <br> 🇩🇪 German (Beginner)
+- English <br> - Hindi <br> - Telugu <br> - Urdu <br> - Kannada <br> - Arabic <br> - 🇩🇪 German (Beginner)
 
 
 ## 🎙️ Interests  
-- 🗣️ Motivational Speaking – *“I AM SMART”, Career Talks, Workplace Stress Mgmt*  
-- 🧑‍🏫 Guest Faculty – *Yashoda Hospitals, Es Pharma*  
-- ❤️ Volunteering – *Career Guidance Council, Red Boys Foundation*
+🗣️ Motivational Speaking – *“I AM SMART”, Career Talks, Workplace Stress Mgmt*  
+🧑‍🏫 Guest Faculty – *Yashoda Hospitals, Es Pharma*  
+❤️ Volunteering – *Career Guidance Council, Red Boys Foundation*
 
 
 ## 📬 Let’s Connect  
