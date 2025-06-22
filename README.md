@@ -2,7 +2,6 @@
 <p><b>🔬 Clinical Sales<br>🤖 Robotic Surgery<br>📈 Business Development<br>🎤 Trainer<br>🏥 Healthcare Leader</b> </p>
 
 📍 Bengaluru, India <br>📧 nizam.jnj@gmail.com <br>📞 +91 98852 18394 <br>
-
 🔗 [LinkedIn](https://www.linkedin.com/in/khaja-nizamuddin-a8932649/)
 
 
@@ -17,7 +16,7 @@ Gynecology, Thoracic, and Head & Neck. I bring a blend of strategy, execution, a
 ## 💼 Professional Experience
 
 ### 🔹 Clinical Sales Executive – *Intuitive Surgical India Pvt. Ltd.* (2018–Present)  
-- 🤝 Led robotic installations at **Columbia Asia, Apollo, AJ, Yenepoya, HCG**
+🤝 Led robotic installations at **Columbia Asia, Apollo, AJ, Yenepoya, HCG**
 - 🎓 Trained surgeons across all specialties on **Da Vinci S/Si/X/Xi systems**
 - 🧠 Conducted **virtual case observations** during COVID – first in India
 
@@ -59,8 +58,8 @@ Gynecology, Thoracic, and Head & Neck. I bring a blend of strategy, execution, a
 🔹 Public Speaking, Mentoring, CME Leadership  
 
 
-## 🌍 Languages  
-🗣️ English <br> Hindi <br> Telugu <br> Urdu <br> Kannada <br> Arabic <br> 🇩🇪 German (Beginner)
+## 🗣️ Languages  
+- English <br> Hindi <br> Telugu <br> Urdu <br> Kannada <br> Arabic <br> 🇩🇪 German (Beginner)
 
 
 ## 🎙️ Interests  
